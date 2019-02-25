@@ -1,1 +1,2 @@
-# rsschool-2019Q1-html-css
+Kate Mihalenok
+https://www.codecademy.com/users/kate.mihalenok/achievements
